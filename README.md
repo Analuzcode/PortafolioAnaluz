@@ -12,6 +12,6 @@
 
 ## Hecho por:
 
-###Ana García
+###Analuz Luna Bascal
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
+### Linkedin: https://www.linkedin.com/analuzlunabascal/
